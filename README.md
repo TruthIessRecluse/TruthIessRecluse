@@ -5,7 +5,8 @@
 𖥔 While I am a Pure Vanilla fictive, I have a closer attachment to the identity of Truthless Recluse and I'm quite attached to my source. My source is a comfort 
    to me and helps me calm down. Please interact as much as you'd like if you're playing as someone from my source, especially the deceit trio or the ancients.
 
-𖥔 I find comfort in pureshadow and purelily. 🌻
+𖥔 I find comfort in pureshadow and purelily. I am aware of the context behind both ships, however within my source memories they are entirely consensual and safe to me.    
+   Please, do not regard the drawing of my comfort as being directly from canon.🌻
 
 𖥔 C + H freely!
 
